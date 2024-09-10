@@ -1,0 +1,1 @@
+## “he terminado mi examen de primer parcial de sistemas operativos”
